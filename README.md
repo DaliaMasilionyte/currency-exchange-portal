@@ -1,0 +1,1 @@
+# valiutu-kursu-portalas
